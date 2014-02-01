@@ -1,4 +1,4 @@
-# Pinterestingbrp
+# Pinterestingbro
 
 This is the frattiest shit ever
 [*PinterestingBRO*] (www.google.com)
@@ -6,3 +6,7 @@ This is the frattiest shit ever
 by [Frat Star] (www.google.com)
 
 LUKE I AM YOUR FATHER
+
+Hi mom pretty cool huh?
+
+Sorry
